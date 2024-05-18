@@ -12,4 +12,5 @@ If this even interests you, my list of phones in order is below.
 
 # How to contact me
 Discord: trisiegt
-[mailto:trisiegt@hotmail.com](Email)
+
+[mailto:trisiegt@hotmail.com](Email address)
