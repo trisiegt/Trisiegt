@@ -11,4 +11,5 @@ If this even interests you, my list of phones in order is below.
 **Sony Xperia XZ1** My first "standard" smartphone, and it has got a fingerprint scanner in the on button!
 
 # How to contact me
-Trisiegt#0891
+Discord: trisiegt
+[mailto:trisiegt@hotmail.com](Email)
